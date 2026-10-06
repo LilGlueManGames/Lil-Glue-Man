@@ -1,1 +1,1 @@
-# Li-l-Glue-Man-Friends-
+Li'l Glue Man!
